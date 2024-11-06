@@ -222,5 +222,5 @@ VM Capital has not been forced by government order
 * SEC
 
 # In the news 
-## 25 September 2024
-"As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing"
+## 6 November 2024
+"Trump's America: Victory Changes Nation's Sense of Itself"
